@@ -92,6 +92,6 @@ In summary, things are moving in the right direction. The focus now should be on
 - Marketing strategies should prioritize married and cohabiting customers, as they represent the most valuable segments in terms of spending. Tailored offers, loyalty programs, and family-oriented campaigns could further boost engagement and spending within these groups. Additionally, the company should explore the lower-spending segments to understand barriers and potential growth opportunities.
 
 ### Connect with me on socials:
-[LinkedIn](https://https://www.linkedin.com/in/felicia-oyebode-587353197/)
+[LinkedIn](https://www.linkedin.com/in/felicia-oyebode-587353197/)
 [Github](https://github.com/lolabode)
 
